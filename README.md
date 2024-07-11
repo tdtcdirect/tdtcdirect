@@ -10,8 +10,6 @@ Liên hệ:
 
 #TDTC #TDTCDirect #ThienDuongTroChoi #CongGameTDTC
 
-https://tdtc.direct/
-
 https://www.pinterest.com/tdtcdirect/
 
 https://www.youtube.com/channel/UCL7IME3fS6UDuo-kDyDojLQ
